@@ -1,0 +1,2 @@
+# DevilMayCrying.github.io
+blog
